@@ -6,4 +6,4 @@
 - 💬  Ask me about ...anything!
 - 📫  How to reach me: ...[sankalp at ualberta dot ca]
 - 😄  Pronouns: ...he/him
-- 🤖  Fun fact: ...i love playing video games!
+- 🤖  Fun fact: ...i love video games!
